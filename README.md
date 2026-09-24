@@ -3,7 +3,7 @@
 **AI Transformation & Operations Architect · governed AI agent systems** — Dubai, UAE
 
 For 25 years I have run operations and finance where the mistake was personally mine to answer for:
-banks, licensed entities, cross-border structures, audits, regulators. Since 2025 I build the same
+banks, licensed entities, cross-border structures, audits, regulators. Since 2026 I build the same
 discipline on a new substrate — **AI agents that do real work under explicit authority, with every
 step reviewable.**
 
